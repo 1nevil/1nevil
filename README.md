@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 # 💫 About Me:
-⚒️I'm currently working on my Web devlopment skill.<br>🌳I'm currently explore more about Web devlopment.<br>😉Ask me about any Web devlopment related stuff.<br>📨How to reach me : Email - nevilmistry26@gmail.com<br>😄Pronouns : He/His.<br>⚡Fun fact : My favorite song is One Direction - Night Changes <br><br>
+⚒️I'm currently working on my Web devlopment skill.<br>🌳I'm currently explore more about Web devlopment.<br>😉Ask me about any Web devlopment related stuff.<br>📨How to reach me : Email - nevilmistry2002@gmail.com<br>😄Pronouns : He/His.<br>⚡Fun fact : My favorite song is One Direction - Night Changes <br><br>
 
 
 ## 🌐 Socials:
